@@ -9,6 +9,6 @@
 
 **Request:** I request you all to poke me and make me accountable if I fail to update on a single day.
 
-### **Link to my Facebook :** [Fb](https://www.facebook.com/amit prakash tiwari)
+### **Link to my Facebook :** [Fb](https://www.facebook.com/profile.php?id=100008488800596)
 ### **Link to my Twitter :** [Twitter](https://twitter.com/AmitPrakashTiw5)
-### **Link to my LinkedIn :** [LinkedIn](https://www.linkedin.com/in/Amit tiwari/)
+### **Link to my LinkedIn :** [LinkedIn](https://www.linkedin.com/in/amit-tiwari-2839b886/)
